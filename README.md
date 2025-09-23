@@ -7,8 +7,8 @@ Here are something about me~~.😊🌸🌸
 - 👯 I’m looking to collaborate on psychology,      neuroscience and coding.
 - 🤔 I’m looking for help with deep learning skills about fMRI image pocessing.
 - 📫 How to reach
-             email~shuych3@mail2.sysu.edu.cn
-                   1440427388@qq.com
+             email~shuych3@alumni.sysu.edu.cn
+                   ys7323@nyu.edu
 - 😄 Pronouns: not peculiar 
                        <maybe George or Shu😹>
 - ⚡ Fun fact: 🙊
