@@ -10,7 +10,7 @@ Here are something about me~~.😊🌸🌸
 - 📫 How to reach
              email~shuych3@alumni.sysu.edu.cn
                    ys7323@nyu.edu
-- 😄 Pronouns: not peculiar 
+- 😄 Pronouns: not parculiar 
                        <maybe George or Shu😹>
 - ⚡ Fun fact: 🙊
 -->
